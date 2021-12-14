@@ -1,1 +1,12 @@
 # Informatik
+
+
+
+### Features
+
+-
+-
+-
+
+
+### Reflexion
